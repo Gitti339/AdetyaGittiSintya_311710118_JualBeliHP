@@ -1,1 +1,0 @@
-# AdetyaGittiSintya_311710118_JualBeliHP
